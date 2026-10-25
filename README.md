@@ -38,8 +38,10 @@
 
 Я проверяю ваше задание под музыку. Скиньте 1-2 песни, под которые проверять именно вашу домашку:). Баллы за это доп. задание удвоятся, если там будет песня в вашем исполнении.
 
-### видеоролик с личным исполнением (Мимо вселенной - Три сотни дней): https://drive.google.com/file/d/1wFexUjTlKAB0d8rs9bIxVHdf866xTXNB/view?usp=sharing
-### My Chemical Romance - surrender the night https://www.youtube.com/watch?v=6_kCpzMJ1Wo
+### Рекомендация №1
+видеоролик с личным исполнением (Мимо вселенной - Три сотни дней): https://drive.google.com/file/d/1wFexUjTlKAB0d8rs9bIxVHdf866xTXNB/view?usp=sharing
+### Рекомендация №2
+My Chemical Romance - surrender the night https://www.youtube.com/watch?v=6_kCpzMJ1Wo
 
 
 ## Доп. моменты:
